@@ -1,4 +1,3 @@
-i have a domain name, rd11, what should it do?
 
 
 Great name! **RD11** has a clean, techy vibe that could lend itself to a variety of projects. Here are some ideas, depending on your interests and goals:
